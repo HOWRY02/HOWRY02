@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **phuchuynhvinh.fwork@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1H9rpaKsGvhtHTbmhQAZAKRWW-rmB3nvq/view?usp=sharing](https://drive.google.com/file/d/1H9rpaKsGvhtHTbmhQAZAKRWW-rmB3nvq/view?usp=sharing)
+- 📄 Know about my experiences [on this resume](https://drive.google.com/file/d/1H9rpaKsGvhtHTbmhQAZAKRWW-rmB3nvq/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
